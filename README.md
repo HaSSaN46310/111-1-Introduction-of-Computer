@@ -1,7 +1,7 @@
 # School-Stuff
-Really? You came here just for plagiarize my code?
+Really? You came here just to plagiarize my code? /j
 
-This whole coding thing is for School, If you came here for "REFERENCE". Please kindly inform me.
+This whole coding thing is for School works, If you are having same class with me and came here for "REFERENCE". Please kindly inform me by e-mail or irl.
 
 Gmail 1 : odinbooder@gmail.com
 
